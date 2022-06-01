@@ -1,0 +1,1 @@
+para estudos na faculdade
